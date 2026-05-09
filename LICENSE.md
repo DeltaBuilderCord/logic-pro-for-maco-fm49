@@ -1,4 +1,4 @@
-
+Get the ultimate Logic Pro for macOS filter with Logic Pro for macOS professional Filter: multi-cam-editing & normalization. Featuring multi-cam-editing and normalization, it's
 
 
 
